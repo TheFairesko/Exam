@@ -1,2 +1,1 @@
-# Exam
 акация NIKITA
